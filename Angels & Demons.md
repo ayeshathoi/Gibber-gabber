@@ -10,8 +10,9 @@ If so, how would people remain the same people they were on Earth? Have they sup
 Or is the knowledge of hell, and the awareness that they have been spared from it, part of what makes the people in heaven feel such profound happiness and gratitude?
 
 
+Moreover, people are constantly evolving, so which version of themselves would they be in heaven? I know that humans are said to be around 33 years old in heaven, but I am more interested in their mental state. Would this be the age at which people have all their desires figured out? Should I wait until I'm 33 to find out?
 
-I don't know if these are the right questions to think about.
+I don't know if these are the right questions to think about. I am just thinking out loud.
 
 And again, I believe we cannot claim that we will attain heaven simply because we have done everything right, as that would be a sign of pride. After all, we are not angels, and we are bound to make mistakes. Dr Jekyll and Mr Hyde.
 
