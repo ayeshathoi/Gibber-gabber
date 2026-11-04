@@ -25,3 +25,17 @@ I go and look at a stonecutter hammering away at his rock, perhaps a
 hundred times without as much as a crack showing in it. Yet at the
 hundred and first blow it will split in two, and I know it was not that
 last blow that did it—but all that had gone before.”
+
+
+---
+
+What’s the difference between systems and goals? It’s a distinction I
+first learned from Scott Adams, the cartoonist behind the Dilbert
+comic. Goals are about the results you want to achieve. Systems are
+about the processes that lead to those results.
+
+
+--> If you’re a musician, your goal might be to play a new piece. Your
+system is how often you practice, how you break down and tackle
+difficult measures, and your method for receiving feedback from
+your instructor.
