@@ -11,3 +11,7 @@ What force can help you if the Lord of Mercy does not? [67:20]
 
 
 "And if Allah should touch you with adversity, there is no remover of it except Him. And if He touches you with good—then He is over all things competent."
+
+---
+
+**"Say, ˹O Prophet,˺ 'He is the One Who brought you into being and gave you hearing, sight, and intellect. ˹Yet˺ you hardly give any thanks.'" [67:23]**
