@@ -62,3 +62,12 @@ had wanted to win the race every year before—just like every other
 professional team. The goal had always been there. It was only when
 they implemented a system of continuous small improvements that
 they achieved a different outcome.
+
+---
+
+When you have repeated a story to yourself for years, it is easy to
+slide into these mental grooves and accept them as a fact. In time, you
+begin to resist certain actions because “that’s not who I am.” There is
+internal pressure to maintain your self-image and behave in a way that
+is consistent with your beliefs. You find whatever way you can to avoid
+contradicting yourself.
